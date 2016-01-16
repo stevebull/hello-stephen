@@ -5,5 +5,5 @@ Stephen Medaris Bull is my birth name, Steve Bull is a stage name.
 I was born on March 6, 1948 - - well that's what was put on the birth certificate...
 
 # November 2015
-It's 3:25 pm ad I have 5 more minutes to add to my story.
+It's 3:25 pm and I have 5 more minutes to add to my story.
 
